@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Kylar761....I apologize for all the random dumps, exposing myself is bad enough but I panicked or usually had to fight the screem to post whatever these were that that are Surely happy I did that. Just had HDDs lifted since a dumb kid : the shame is much felt. Also screwed atm, so if this account goes nuts it was NOT myself. 
